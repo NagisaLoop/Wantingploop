@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Wantingploop
+- 👋 Hi, I’m @Nyochio
 - 👀 I’m interested in: Java and Python
-- 🌱 I’m currently learning: C#
+- 🌱 I’m currently learning: Why the hell Unity isn't normal
 - 💞️ I’m looking to collaborate on: nothing atm
 - 📫 How to reach me: don't
 
