@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Nyochio
 - 👀 I’m interested in: Java and Python
-- 🌱 I’m currently learning: Why the hell Unity isn't normal
+- 🌱 I’m currently learning: The meaning of life 🧚‍♀️
 - 💞️ I’m looking to collaborate on: nothing atm
 - 📫 How to reach me: don't
 - あの日誓った未来が水平線で....
